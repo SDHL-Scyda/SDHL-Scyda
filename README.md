@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @SDHL-Scyda
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning LUA
+- 📫 How to reach me scyda.gg@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I am german
